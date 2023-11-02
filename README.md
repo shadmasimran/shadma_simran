@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @shadmasimran
+- 👀 I’m interested in learning new things
+- 🌱 I’m currently study b.tech computer engineering
